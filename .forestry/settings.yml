@@ -7,7 +7,6 @@ sections:
 - type: jekyll-posts
   label: Posts
   create: all
-  match: "**/*"
 - type: directory
   path: _books
   label: Books
@@ -33,7 +32,7 @@ sections:
   label: Tags
   create: all
   match: "**/*.md"
-  new_doc_ext: ".md"
+  new_doc_ext: md
 upload_dir: images/uploads
 public_path: "/images/uploads"
 front_matter_path: ''
