@@ -6,6 +6,15 @@ layout: default
 
 	<div class="wrap">
 
+		{% if page.tags %}
+		<p class="blog-post__tags">
+			{% for tag in page.tags %}
+				{% capture tag_name %}{{ tag }}{% endcapture %}
+				<a href="/topics/{{ tag_name }}" class="blog-post__tag">{{ tag_name }}</a>
+			{% endfor %}
+		</p>
+		{% endif %}
+
 		<h1>{{ page.title }}</h1>
 		<p>{{ page.date | date_to_long_string }}</p>
 

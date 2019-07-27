@@ -1,9 +1,30 @@
 ---
 layout: default
-title: A stunning personal blog Jekyll theme
-description: Journal is a stunning personal blog Jekyll theme with an image-focused design.
-featured_image: /images/demo/demo-portrait.jpg
+title: Journal
+description: Stories, songs, and thoughts on life.
 ---
+
+<section class="intro">
+
+	<div class="wrap">
+		<!--<h1>{{ page.title }}</h1>-->
+
+		<p style="margin:0 0 2em;"><small>
+			{% capture temptags %}
+				{% for tag in site.tags %}
+					{{ tag[1].size | plus: 1000 }}#{{ tag[0] }}#{{ tag[1].size }}
+				{% endfor %}
+			{% endcapture %}
+			{% assign sortedtemptags = temptags | split:' ' | sort | reverse %}
+			{% for temptag in sortedtemptags %}
+				{% assign tagitems = temptag | split: '#' %}
+				{% capture tagname %}{{ tagitems[1] }}{% endcapture %}
+				<a class="blog-post__tag" href="/topics/{{ tagname }}">{{ tagname }}</a>
+			{% endfor %}
+		</small></p>
+	</div>
+
+</section>
 
 <section class="blog single">
 

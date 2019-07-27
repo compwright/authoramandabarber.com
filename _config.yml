@@ -1,4 +1,4 @@
-site: Journal Jekyll Theme
+site: Amanda Hill, Author
 
 collections:
   pages:
@@ -6,10 +6,16 @@ collections:
     permalink: /:name
   posts:
     output: true
-    permalink: /blog/:slug
-  projects:
+    permalink: /:year/:month/:day/:slug
+  books:
     output: true
-    permalink: /project/:slug
+    permalink: /books/:slug
+  movies:
+    output: true
+    permalink: /movies/:slug
+  music:
+    output: true
+    permalink: /music/:slug
 
 defaults:
   -
@@ -17,6 +23,7 @@ defaults:
       path: ""
     values:
       layout: "default"
+      featured_image: /images/amanda.jpg
   -
     scope:
       path: ""
@@ -32,7 +39,19 @@ defaults:
   -
     scope:
       path: ""
-      type: "projects"
+      type: "books"
+    values:
+      layout: "project"
+  -
+    scope:
+      path: ""
+      type: "movies"
+    values:
+      layout: "project"
+  -
+    scope:
+      path: ""
+      type: "music"
     values:
       layout: "project"
 
@@ -50,5 +69,5 @@ plugins:
   - jekyll-sitemap
 
 paginate: 6
-paginate_path: "/blog/page:num/"
+paginate_path: "/page/:num/"
   

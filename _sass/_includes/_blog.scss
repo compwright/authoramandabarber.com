@@ -41,6 +41,25 @@
 	}
 }
 
+.blog-post__tags {
+	margin-bottom: 2em;
+}
+
+.blog-post__tag {
+	text-transform: uppercase;
+	color: white;
+	background: $text-light-color;
+	display: inline-block;
+	padding: 0 0.5em;
+	margin-right: 0.5em;
+	border-radius: 0.25em;
+
+	&:hover {
+		color: white;
+		background: $text-medium-color;
+	}
+}
+
 .blog-post__image {
 	margin-top: 20px;
 	display: block;
