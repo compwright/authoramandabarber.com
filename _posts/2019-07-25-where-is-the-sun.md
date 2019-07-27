@@ -1,11 +1,14 @@
 ---
-title: Where is the sun?
+title: Where Is the Sun?
 date: 2019-07-25
-featured_image: /images/posts/2019-07-25-where-is-the-sun/kitten.jpg
+featured_image: "/images/posts/2019-07-25-where-is-the-sun/kitten.jpg"
 tags: life
-excerpt: The last year or two has really knocked the wind out of me. I find myself mentally lethargic, tired, and fighting depression and or anxiety nearly every day. The easiest explanation for this is that I am sick. And being sick effects your mind and emotions...especially the Lyme kind of sick.
----
+excerpt: The last year or two has really knocked the wind out of me. I find myself
+  mentally lethargic, tired, and fighting depression and or anxiety nearly every day.
+  The easiest explanation for this is that I am sick. And being sick effects your
+  mind and emotions...especially the Lyme kind of sick.
 
+---
 The last year or two has really knocked the wind out of me. I find myself mentally lethargic, tired, and fighting depression and or anxiety nearly every day. The easiest explanation for this is that I am sick. And being sick effects your mind and emotions...especially the [Lyme kind](https://www.facebook.com/amanda.k.barber.5/posts/10157021040149590) [of sick](https://www.facebook.com/706174589/posts/10156759799049590).
 
 I used to write all the time. Like it was breathing in and out for me. Now I feel so stuck. There’s a half finished novel saved to my computer somewhere because the theme of my writing seems to be gone.
@@ -25,9 +28,9 @@ And I hang onto the words “someday I shall see clearly,” because today I don
 And as for whether God loves me or not...I cannot feel it directly. But I take some comfort in the [words of C.S. Lewis](http://www.cslewisinstitute.org/webfm_send/1704) when he wrote to his friend, “Gratitude exclaims, very properly, ‘How good of God to give me this.’ Adoration says, ‘What must be the quality of that Being whose far-off and momentary coruscations are like this!’ One’s mind runs back up the sunbeam to the sun.”
 
 <div class="gallery" data-columns="2">
-	<img src="/images/posts/2019-07-25-where-is-the-sun/kitten.jpg">
-	<img src="/images/posts/2019-07-25-where-is-the-sun/argos.jpg">
-    <img src="/images/posts/2019-07-25-where-is-the-sun/cora.jpg">
+<img src="/images/posts/2019-07-25-where-is-the-sun/kitten.jpg">
+<img src="/images/posts/2019-07-25-where-is-the-sun/argos.jpg">
+<img src="/images/posts/2019-07-25-where-is-the-sun/cora.jpg">
 </div>
 
 I thought of this while I laid on my bed, grieving over days lost, an empty house with no children in it, good ambitions quashed by physical limitation, the battle against an anxiety that looms like a dark shadow on the wall where no shadow should be. Jonathon had his arms around me while I cried and I thought that he must be one of the sunbeams Lewis was talking about—a line from Heaven to me to help me bear what I have no choice but to bear. And Argos with his beautiful brown eyes, and [Cora](https://www.instagram.com/corathelionhearted/) with her saucy attitude and the tiny kitten I took care of for a day and for the sun itself when the weather is fine and all I can do is look at it.
