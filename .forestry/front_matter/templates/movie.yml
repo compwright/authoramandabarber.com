@@ -1,0 +1,22 @@
+---
+label: Movie
+hide_body: false
+fields:
+- type: text
+  name: title
+  label: title
+- type: text
+  name: subtitle
+  label: subtitle
+- type: text
+  name: excerpt
+  label: excerpt
+- type: datetime
+  name: date
+  label: date
+- type: file
+  name: featured_image
+  label: featured_image
+- type: file
+  name: cover_image
+  label: cover_image
