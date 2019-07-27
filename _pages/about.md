@@ -1,12 +1,8 @@
 ---
 title: About Amanda
 description: Amanda Kay Barber is the author of numerous short stories and essays.
+
 ---
-
-<!--
-![](/images/demo/demo-landscape.jpg)
--->
-
 Amanda Barber is the author of numerous short stories and essays. In 2009, Amanda collaborated with her brother, Justin Barber, to produce an album of original compositions with a complimentary narrative, entitled Children’s Suite. Early in 2011, she wrote and co-produced a radio broadcast which aired on 106.7 FM Radio Harbor Country, Three Oaks, MI. She recently completed …her first novel, The Pursuit of Elizabeth Millhouse, and is currently seeking publication. Her next novel, 27, is in progress.
 
 Amanda has a keen interest in writing for films. This summer she wrote a short film script called, The Wednesday Morning Breakfast Club. The film is currently in pre-production and is tentatively set for shooting in the summer of 2012.
