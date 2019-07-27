@@ -1,7 +1,7 @@
 ---
 new_page_extension: md
 auto_deploy: false
-admin_path: 
+admin_path: ''
 webhook_url: 
 sections:
 - type: jekyll-posts
@@ -32,7 +32,7 @@ sections:
   label: Tags
   create: all
   match: "**/*"
-  new_doc_ext: ''
+  new_doc_ext: '20190726204743'
   templates:
   - tag
 upload_dir: images/uploads
