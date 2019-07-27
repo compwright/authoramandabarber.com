@@ -31,8 +31,10 @@ sections:
   path: topics
   label: Tags
   create: all
-  match: "**/*.md"
-  new_doc_ext: md
+  match: "**/*"
+  new_doc_ext: ''
+  templates:
+  - tag
 upload_dir: images/uploads
 public_path: "/images/uploads"
 front_matter_path: ''
