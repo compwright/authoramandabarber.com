@@ -20,6 +20,8 @@ menu_settings:
       url: /movies
 #    - title: Music
 #      url: /music
+    - title: Studio
+      url: https://fons.app/@amandakhill
     - title: About
       url: /about
     - title: Contact

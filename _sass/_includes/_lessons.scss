@@ -1,0 +1,23 @@
+.lessons {
+    background: $accent-color;
+    color: $text-dark-color;
+    text-align: center;
+    padding: 1em;
+
+    a {
+        text-decoration: underline;
+        color: inherit;
+
+        &:hover {
+            color: inherit;
+        }
+    }
+
+    #fons-book {
+        font-size: inherit !important;
+        background: $text-dark-color !important;
+        color: white !important;
+        border: none !important;
+        padding: 0.25rem 0.5rem !important;
+    }
+}
