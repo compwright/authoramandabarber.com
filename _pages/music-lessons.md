@@ -1,11 +1,9 @@
 ---
 title: Music Lessons
-date: 2019-08-02 00:00:00 -0400
 featured_image: "/images/uploads/2018Barber&Hill-011.JPG"
-tags: ''
-excerpt: ''
-
+excerpt: I’m accepting students for violin, voice, and piano in my private studio here in South Carolina.
 ---
+
 I first began teaching music in Michigan as a 25-year-old violinist, pianist and singer. Over the course of five years, my music studio grew to about forty students. What began as a way of funding my college education turned into a full time job that I really loved.
 
 When I got married and moved to South Carolina, I really missed the kids and the relationships that had developed between me and their families. So, I’m taking students again and building my studio here in South Carolina.
@@ -16,9 +14,9 @@ When I got married and moved to South Carolina, I really missed the kids and the
 * Violin
 * Piano
 
-If you are in the Upstate are of South Carolina and are interested in music lessons for yourself or your child, you can contact me through my music studio page:
+If you are in the Upstate area of South Carolina and are interested in music lessons for yourself or your child, you can contact me through my music studio page:
 
-<a href="https://fons.app/@amandakhill" style="display:inline-block;text-align:center;">Amanda Hill's Music Studio</a>
+<p class="lessons"><a href="https://fons.app/@amandakhill">Amanda Hill's Music Studio</a></p>
 
 ## Musical experience
 
@@ -66,15 +64,15 @@ Here's one of my piano students, Lucien Witmer, at the Spring 2015 recital:
 
 ### Tuition
 
-Tuition is $100 per month for four lessons and is non-refundable.
+Tuition is $100 per month for one lesson per week and is non-refundable.
 
 ### Cancellation Policy
 
-Please give 24 hours notice before cancelling a lesson. If life happens, and you have a flat tire on the way to a lesson or a feverish child prevent you from canceling before that 24 hour mark, we can schedule a make up lesson.
+Please give 24 hours notice before cancelling a lesson. If life happens, and you have a flat tire on the way to a lesson or a feverish child prevents you from canceling before that 24 hour mark, we can schedule a make up lesson.
 
 ### Family Involvement
 
-I love families. Parents and siblings of students are welcome to come along to lessons. There are two reasons for this.
+I love families. Parents and siblings of students are encouraged to come along to lessons. There are two reasons for this.
 
 First, it’s important for parents to observe lessons so that they know how to help their children practice during the week, what they should be practicing, and how they should be practicing.
 

@@ -18,10 +18,8 @@ menu_settings:
       url: /books
     - title: Movies
       url: /movies
-#    - title: Music
-#      url: /music
-    - title: Studio
-      url: https://fons.app/@amandakhill
+    - title: Music Lessons
+      url: /music-lessons
     - title: About
       url: /about
     - title: Contact
