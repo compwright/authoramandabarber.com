@@ -1,6 +1,6 @@
 ---
 title: Teaching
-date: 
+date: 2019-08-02 00:00:00 -0400
 featured_image: ''
 tags: ''
 excerpt: ''
