@@ -4,6 +4,7 @@ date: 2019-08-02 00:00:00 -0400
 featured_image: "/images/uploads/2018Barber&Hill-011.JPG"
 tags: ''
 excerpt: ''
+published: false
 
 ---
 I first began teaching music in Michigan as a 25-year-old violinist, pianist and singer. Over the course of five years, my music studio grew to about forty students. What began as a way of funding my college education turned into a full time job that I really loved.
