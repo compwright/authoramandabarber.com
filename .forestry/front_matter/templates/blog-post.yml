@@ -17,3 +17,5 @@ fields:
 - type: textarea
   name: excerpt
   label: excerpt
+pages:
+- _pages/teaching.md
