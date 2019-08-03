@@ -4,7 +4,6 @@ date:
 featured_image: ''
 tags: ''
 excerpt: ''
-published: false
 
 ---
 I began teaching music in Michigan as a 25-year-old violinist, pianist and singer. Over the course of five years, my music studio grew to about forty students. What began as a way of funding my college education turned into a full time job that I really loved. I so enjoy teaching and working with kids that when I got married and moved to South Carolina, I really missed the kids and the relationships that had developed between me and their families. Now I’m hoping to build a studio here in Townville, SC!
