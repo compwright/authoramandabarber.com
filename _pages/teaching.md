@@ -1,7 +1,7 @@
 ---
 title: Music Lessons
 date: 2019-08-02 00:00:00 -0400
-featured_image: ''
+featured_image: "/images/uploads/2018Barber&Hill-011.JPG"
 tags: ''
 excerpt: ''
 
