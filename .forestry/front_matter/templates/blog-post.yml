@@ -18,4 +18,5 @@ fields:
   name: excerpt
   label: excerpt
 pages:
+- _posts/grandma-at-halloween.md
 - _posts/disappointed.md
