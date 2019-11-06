@@ -7,8 +7,9 @@ excerpt: It occurs to me that I learned how to treat children, in part, from the
   of my Grandma Barber. It was her example that taught me not to fear the aging process
   and the inevitability of death and decay, at least as much as it is possible not
   to fear these things. I learned that love and kindness are forever and that youth
-  and health are not. Memento mori. I learned many of these things from her at Halloween.
-  A holiday I can't stand.
+  and health are not. Memento mori. I learned many of these things from her--unaware
+  that I was learning anything, and she unaware that her mere existence taught them--at
+  Halloween. A holiday I can't stand.
 
 ---
 It's odd the kinds of things that jog my fond memories. Last week's Halloween revelry is one of them. This is odd because I generally dislike the holiday intensely. I find it sordid, uncouth, and ugly. Last week, I pondered whether Halloween could be used to express memento mori--remember that you will die. In other words, life is fleeting. Tomorrow, we could be rotting in our graves. So, live like your short life means something. Be productive. The things that won't rot in the grave with you are the intangible, eternal things.
@@ -21,6 +22,6 @@ Grandma was, as far as I'm concerned, the quintessential grandmother figure. The
 
 Ten years later, I would also stand at the door on 3541 Duke St. and hand out candy to the little kids in costumes, remembering how my grandma did it and how important she found each child and how important she made them feel--how important and loved she made me feel.
 
-It occurs to me that I learned how to treat children, in part, from the example of my Grandma Barber. It was her example that taught me not to fear the aging process and the inevitability of death and decay, at least as much as it is possible not to fear these things. I learned that love and kindness are forever and that youth and health are not. Memento mori. I learned many of these things from her at Halloween. A holiday I can't stand.
+It occurs to me that I learned how to treat children, in part, from the example of my Grandma Barber. It was her example that taught me not to fear the aging process and the inevitability of death and decay, at least as much as it is possible not to fear these things. I learned that love and kindness are forever and that youth and health are not. Memento mori. I learned many of these things from her--unaware that I was learning anything, and she unaware that her mere existence taught them--at Halloween. A holiday I can't stand.
 
 Life is funny, isn't it?
