@@ -2,8 +2,11 @@
 title: Thanksgiving and a Song
 date: 2019-11-26 00:00:00 -0500
 featured_image: "/images/uploads/timothy-eberly-yuiJO6bvHi4-unsplash.jpg"
-tags: ''
-excerpt: ''
+tags: music
+excerpt: 'It felt like a pure gift from God to be pain free, happily absorbed in musical
+  composition, astonished that something so beautiful was coming out of my head. I
+  kept thanking Him over and over again for it, hoping against hope that this gift
+  might go on for a month or two or more... '
 
 ---
 It felt like a pure gift from God to be pain free, happily absorbed in musical composition, astonished that something so beautiful was coming out of my head. I kept thanking Him over and over again for it, hoping against hope that this gift might go on for a month or two or more... But I'm getting a little ahead of myself.
