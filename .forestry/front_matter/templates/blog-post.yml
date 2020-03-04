@@ -18,6 +18,6 @@ fields:
   name: excerpt
   label: excerpt
 pages:
-- _posts/2019-11-26-thanksgiving-and-a-song.md
 - _posts/2019-11-06-grandma-at-halloween.md
+- _posts/2019-11-26-thanksgiving-and-a-song.md
 - _posts/disappointed.md
