@@ -35,3 +35,11 @@ Second, don’t coddle your fears or they’ll grow. Do yourself a favor and tur
 Third, go do something useful. It is not useful to travel around the world declaring climate change doom. It is useful to buy clothing second hand, plant a garden, seed your yard with wildflowers for the bees and other pollinators, get a more fuel-efficient vehicle, reuse and repurpose old clothing and belongings, etc… It is not useful to mob the grocery stores in a panic and push small children over to get a gallon of bleach or a semi-effective face mask. It is useful to get sleep at night, eat wholesome food that doesn’t come out of a box or a plastic wrapper, wash your hands, get exercise, get in the sunlight for a few minutes and hold the sunblock, wash the dishes, walk the dog, take chicken soup to your sick neighbors, smell some flowers, and…enjoy your life outside the panic room.
 
 You see, we are all going to die someday. Some of us may even die of coronavirus. If I ever get exposed to the nasty stuff, it’s quite possible I could die, given the fact that Lyme disease tends to weaken the immune system. But my faith informs me that the day of my death is in God’s hands. I will die when it is my time to die and not one moment before. Climate change can’t alter that fact, nor can coronavirus. Until then, would it not be better to live under the sun of God’s smile in peace instead of in the panic room scrabbling and scrambling to survive? I’ve been in both places. I doubt I’ve seen the last of the panic room, but I don’t ever intend to stay there again. I hope you feel the same.
+
+_The first action to be taken is to pull ourselves together. If we are going to be destroyed by an atomic bomb, let that bomb, when it comes, find us doing sensible and human things -- praying, working, teaching, reading, listening to music, bathing the children, playing tennis, chatting to our friends over a pint and a game of darts -- not huddled together like frightened sheep and thinking about bombs._
+
+_C. S. Lewis_
+
+_In the best of times, our days are numbered anyway. So it would be a crime against nature for any generation to take the world crisis so solemnly that it put off enjoying those things for which we were designed in the first place: the opportunity to do good work, to enjoy friends, to fall in love, to hit a ball, and to bounce a baby._
+
+_Alistair Cooke_
