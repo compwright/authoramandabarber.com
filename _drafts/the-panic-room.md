@@ -3,7 +3,17 @@ title: The Panic Room
 date: 
 featured_image: "/images/uploads/The Panic Room.jpg"
 tags: fear anxiety crisis
-excerpt: ''
+excerpt: Having an intimate and somewhat dramatic acquaintance with fear as I do,
+  I have noticed a few things about it. First, you cannot suppress it. It doesn’t
+  work to will it away, shove it in the closet, brush it under the rug. At least not
+  forever. There in the dark, it just grows bigger and bursts out again. You have
+  to face fear honestly and walk straight through it to get to joy and peace. That’s
+  the only way. Second, you cannot coddle fear. Then it grows to such monstrous proportions
+  that it controls you. Fear in the driver’s seat is dangerous. It makes you do the
+  stupidest, most irrational things. When you are controlled by fear, you hurt people
+  and ruin things and places in a panicked effort to survive. But fear loves to be
+  in control, and in the wider world outside my mind, fear sells. Worse than that,
+  people who love to be in control keep fear in their weapons arsenal.
 
 ---
 A friend of my husband texted him today. She and her daughter were standing in line at Walmart. This particular Walmart was nearly stripped of cleaning supplies. There was a hint of panic in the air as everyone grabbed their coronavirus survival gear. She told Jonathon, “This guy almost pushed us over trying to get to the front of the line first. We are just a hairs’ breadth away from a full-blown panic.” I found that alarming, as I know a thing or two about fear. I’ve been fighting it for some years now. It’s distressing to see people building proverbial panic rooms when they could be free and courageous.
