@@ -1,7 +1,7 @@
 ---
 title: The Panic Room
 date: 2020-03-04 00:00:00 -0500
-featured_image: "/images/uploads/fear-615989_1920.jpg"
+featured_image: "/images/uploads/The Panic Room.jpg"
 tags: fear anxiety crisis
 excerpt: Having an intimate and somewhat dramatic acquaintance with fear as I do,
   I have noticed a few things about it. First, you cannot suppress it. It doesn’t
