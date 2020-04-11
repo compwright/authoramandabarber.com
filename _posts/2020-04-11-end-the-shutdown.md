@@ -23,3 +23,5 @@ Please end the shut down now. Because all businesses are essential to someone.
 With Respect,
 
 Amanda Hill
+
+South Carolina citizens eager to get back to work can sign the petition [here](https://bit.ly/end-sc-shutdown).
