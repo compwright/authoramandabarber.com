@@ -3,7 +3,13 @@ title: 'Sinking Sands--A Three Part Series  Part 1: Now What?'
 date: 2021-01-12 00:00:00 -0500
 featured_image: "/images/uploads/joe-pearson-bw8epk5uetw-unsplash.jpg"
 tags: 2021 politics elections hopelessness hope truth lies
-excerpt: ''
+excerpt: In his loving, gentle hands, I am safe. Living Himself within my heart, making
+  me what he is, I am secure. Not that nothing bad can happen to me. Because plenty
+  of bad things have over the course of my life and to you as well. (I even got Covid
+  this year.) I mean, existentially safe. Whatever happens, I will be alright. If
+  I die, I will be with Him. If I suffer, I will suffer in His hands. If I am bereaved,
+  I will be bereaved in His hands. I will never be separated from Him, and He will
+  hold me together.
 
 ---
 > My hope is built on nothing less 
