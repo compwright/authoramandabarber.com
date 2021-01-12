@@ -20,7 +20,7 @@ excerpt: ''
 >
 > \--Edward Mote
 
-For those who have never visited my blog before, welcome! I am Amanda (Barber) Hill. I am married to Representative Jonathon Hill of the South Carolina House of Representatives. I don’t state this to brag or name drop, simply to certify that I have been working in the political sphere alongside my husband for the past five years and that I have gained a lot of experience to back up the political advice I will be sharing in these three posts.
+###### For those who have never visited my blog before, welcome! I am Amanda (Barber) Hill. I am married to Representative Jonathon Hill of the South Carolina House of Representatives. I don’t state this to brag or name drop, simply to certify that I have been working in the political sphere alongside my husband for the past five years and that I have gained a lot of experience to back up the political advice I will be sharing in these three posts.
 
 On January 5, I shared my last of a series of 12 carols on Facebook along with a small meditation on being in the capable and good hands of Jesus and resting in that . The next day, January 6 happened with all of its chaos, angst, and anger. I’ve seen so much confusion, defeatism, anger, and rage from those on the left and the right on social media since then. My chief concern, here, is those who profess to be Christians who are convinced that a stolen election, massive fraud, and the end of Trump’s presidency means the end of America. That there is nothing to be done except either give up or get violent or go missing and watch the world burn and say, “I told you so.”
 
