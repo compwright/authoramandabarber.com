@@ -6,9 +6,23 @@ tags: 2021 politics elections hopelessness hope truth lies
 excerpt: ''
 
 ---
+> My hope is built on nothing less 
+>
+> Than Jesus' blood and righteousness
+>
+> I dare not trust the sweetest frame
+>
+> But wholly lean on Jesus' name
+>
+> On Christ, the solid rock, I stand
+>
+> All other ground is sinking sand.
+>
+> \--Edward Mote
+
 For those who have never visited my blog before, welcome! I am Amanda (Barber) Hill. I am married to Representative Jonathon Hill of the South Carolina House of Representatives. I don’t state this to brag or name drop, simply to certify that I have been working in the political sphere alongside my husband for the past five years and that I have gained a lot of experience to back up the political advice I will be sharing in these three posts.
 
-On January 5, I shared my last of a series of 12 carols on Facebook along with a small meditation on being in the capable and good hands of Jesus and resting in that . The next day, January 6 happened with all of its chaos, angst, and anger. I’ve seen so much confusion, defeatism, anger, and rage from those on the left and the right on social media since then. My chief concern, here, is those who profess to be Christians who are convinced that a stolen election, massive fraud, and the end of Trump’s presidency means the end of America. That there is nothing to be done except either give up or get violent or go missing and watch the world burn and say, “I told you so.” 
+On January 5, I shared my last of a series of 12 carols on Facebook along with a small meditation on being in the capable and good hands of Jesus and resting in that . The next day, January 6 happened with all of its chaos, angst, and anger. I’ve seen so much confusion, defeatism, anger, and rage from those on the left and the right on social media since then. My chief concern, here, is those who profess to be Christians who are convinced that a stolen election, massive fraud, and the end of Trump’s presidency means the end of America. That there is nothing to be done except either give up or get violent or go missing and watch the world burn and say, “I told you so.”
 
 I am not going to argue about whether the election was stolen or not. I’m not going to argue about who started the violence at the Capital—we have no evidence that would stand up in a court of law that antifa started it and Trump supporters were just swept into the fray. Videos can be faked, grainy photos can be tampered with. Personal stories of people who tried to prevent violence and are convinced the people they confronted were not Trump supporters…well, that’s still not proof. They simply don’t know who those people were. Perhaps antifa was there. Perhaps not. I just don’t know. And to become obsessed on that question is not healthy at this point. My only purpose in these three blog posts are to remind you of first things in part one, how to apply first things practically in part two, and to show you in part three how you can have an influence on the political climate of our country for good. The show ain’t over until the fat lady sings and don’t let anyone tell you otherwise. There are so many things you can do to fight for the causes you believe in besides resorting to violence or running off to the mountains to hermitize yourself. But first, here’s what I wrote on January 5:
 
