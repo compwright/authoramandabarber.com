@@ -21,17 +21,17 @@ But pray correctly. Don’t demand that God save America by putting Trump back i
 
 # Thank God
 
-There are one hundred things to thank God for every day. When you’re tempted to get on Facebook and make an angry rant. Stop. Turn your mind to thanking God. If you can’t think of anything, thank Him for everything you have enjoyed from the most mundane to the most profound. 
+There are one hundred things to thank God for every day. When you’re tempted to get on Facebook and make an angry rant. Stop. Turn your mind to thanking God. If you can’t think of anything, thank Him for everything you have enjoyed from the most mundane to the most profound.
 
-* If you enjoyed watching the birds outside your window even for five seconds, thank Him for that experience. 
-* If your little girl’s smile lit up your morning even if she threw a temper tantrum five minutes later, thank God for that. 
-* Did your spouse tell you, “I love you” today? Thank God. 
-* Did a friend express concern for you? Thank God. 
-* Did your coffee taste especially good? Thank God. 
+* If you enjoyed watching the birds outside your window even for five seconds, thank Him for that experience.
+* If your little girl’s smile lit up your morning even if she threw a temper tantrum five minutes later, thank God for that.
+* Did your spouse tell you, “I love you” today? Thank God.
+* Did a friend express concern for you? Thank God.
+* Did your coffee taste especially good? Thank God.
 
 I could go on and on, but I think you get the picture. God blesses you through these tangible things. They are like rays from the sun, as C. S. Lewis once said. They are not the sun proper, but they wouldn’t be there if the sun didn’t exist. Don’t worship the rays. Follow the rays up to the sun and give your thanks there. Follow the sunbeams up to the sun of God’s smile and remember that He sent them because He loves you.
 
-# Rest 
+# Rest
 
 Many of you have been off to one Trump rally after another before the election. Afterwards, you went to several more trying to “stop the steal.” You’re tired physically, mentally, and emotionally. On top of that, you have the continued Covid drama, normal family drama, work, school, health difficulties, and a host of other hardships grabbing you by all four limbs and maybe your head, trying to pull you apart. You must rest. I can almost hear you screaming back at me, “But how!!!” I get it. I’m not independently wealthy with the means to run off on a restful vacation currently, either. But there are moments of rest you can grab in between the crazy.
 
@@ -42,7 +42,7 @@ First, quiet your mind. Might I suggest a TV and social media fast? Especially, 
 * Reading books to your kiddos
 * Choosing a verse from the Bible that you stick to the refrigerator and read every time you open it
 * Power naps
-* Watching movies that are calming and inspiring... are a few suggestions. (It would probably be best to stay away from stuff like the Manchurian Candidate and World War Z at this time. I’ll put my contact info at the end of this post and if you need ideas, I can make some suggestions.) In fact, you might need to have your kids watch a movie so you can power nap! It’s allowed. 
+* Watching movies that are calming and inspiring... are a few suggestions. (It would probably be best to stay away from stuff like the Manchurian Candidate and World War Z at this time. I’ll put my contact info at the end of this post and if you need ideas, I can make some suggestions.) In fact, you might need to have your kids watch a movie so you can power nap! It’s allowed.
 * If God has given you creative ability and an outlet and you have the time, do something creative. I find that my mind becomes more focused, stress gets released from my body, and I enjoy a sense of well-being that is hard to match from any other activity.
 
 # Repentance
@@ -80,3 +80,5 @@ Contact info:
 mandaviolin@hotmail.com
 
 269-270-2516
+
+[Read Part 1](http://authoramandabarber.com/2021/01/12/sinking-sands-a-three-part-series-part-1-now-what)
