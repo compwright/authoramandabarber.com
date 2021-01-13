@@ -12,7 +12,7 @@ excerpt: In his loving, gentle hands, I am safe. Living Himself within my heart,
   hold me together.
 
 ---
-> My hope is built on nothing less 
+> My hope is built on nothing less
 >
 > Than Jesus' blood and righteousness
 >
@@ -75,5 +75,7 @@ I hope you’ve enjoyed these last twelve days of Carols. I hope this last song,
 On January 6, did anything I wrote on January 5 ultimately change? No. But many feel the rug has been pulled out from underneath them. May I suggest in the kindest way possible, that if you are one of those people, you may have planted your feet on the wrong foundation? If our personal worlds collapse because a thing, person, or circumstance is denied us, that is actually the case. And that usually means we have fallen into some kind of idolatry. Christians can do that sometimes, because we still have remaining sin and it can sneak up on us if we are not careful. Don’t beat yourself over the head, just repent. Get your feet out of the sinking sand and get on the rock.
 
 I’ll show you the things that help me do this tomorrow. In the meanwhile, give the song a listen or two. Let the truth wash over you and let it calm your mind and soul.
+
+[Read Part 2](http://authoramandabarber.com/2021/01/13/sinking-sands-a-three-part-series-part-2-how-do-i)
 
 <iframe width="560" height="315" src="https://www.youtube.com/embed/MouSJbPO9Vs" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>

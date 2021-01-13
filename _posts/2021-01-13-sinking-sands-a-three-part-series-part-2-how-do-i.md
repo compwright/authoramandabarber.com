@@ -45,7 +45,7 @@ First, quiet your mind. Might I suggest a TV and social media fast? Especially, 
 * Watching movies that are calming and inspiring... are a few suggestions. (It would probably be best to stay away from stuff like the Manchurian Candidate and World War Z at this time. I’ll put my contact info at the end of this post and if you need ideas, I can make some suggestions.) In fact, you might need to have your kids watch a movie so you can power nap! It’s allowed.
 * If God has given you creative ability and an outlet and you have the time, do something creative. I find that my mind becomes more focused, stress gets released from my body, and I enjoy a sense of well-being that is hard to match from any other activity.
 
-# Repentance
+# Repent
 
 All of these things I have mentioned above can constitute repentance. I know that sounds odd. We typically think of repentance as falling on your face, beating your breast, tearing clothes, and weeping. And, yes, repentance can look like that depending on circumstances and your particular personality plus cultural moment. But, simply put, repentance is turning away from your error--your missing of the mark-- and turning to Christ to fix your eyes back on Him in simple obedience.
 
