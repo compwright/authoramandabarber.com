@@ -75,9 +75,15 @@ So, here are the reasons I kept Bob:
 * Because advocating for limited government means taking on responsibility so that less government is needed.
 * And finally, because silly me, I asked God to send us a dog that needed us. And Bob seems to fit that description.
 
+![](/images/uploads/img_4329.jpg)
+
 I’m not going to lie, we’ve had some tough times with this stubborn little guy. He has many survival traits that keep mucking up the works. He has started many fights with Argos due to resource guarding. I have cleaned pee and poop off my floors many times. I have spent many hours working with him on obedience. I have spent hours consistently correcting him for jumping on people, trying to dominate Argos, trying to chew up unapproved objects, breaking out of the fence, pulling food off the counter tops, jumping on the couches, and many other undesirable traits. I have washed innumerable muddy pawprints off my floors. Jonathon and I have gotten up early each morning to give both dogs a looooooonnnnnngggg energy-draining walk. (A good dog is a tired dog.) And we do not enjoy early mornings. But it's all paying off. He has come a long way in four weeks. He and Argos are getting along better day by day.
 
+![](/images/uploads/img_4332.jpg)
+
 I told the vet yesterday at Bob’s appointment that I still didn’t know exactly whether it was going to work out. But I was going to do my best by Bob. I said I wasn’t giving up on him unless I had tried absolutely everything. A shelter will be our very last resort.
+
+![](/images/uploads/img_4333.jpg)
 
 I realize not everyone able to take in a stray. If you are a farmer, for instance, you probably should not take in Bob, for your livestock’s sake. Of if you really dislike animals, taking in strays is probably not for you. But everyone has a talent or ability or the resources to ease some burden somewhere. Think about it. What need can you meet to shrink the size of government? It just boils down to loving your neighbor, and there are about as many ways to do that as there are people in the world.
 
