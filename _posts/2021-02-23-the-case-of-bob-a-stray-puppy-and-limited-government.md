@@ -85,7 +85,7 @@ I told the vet yesterday at Bob’s appointment that I still didn’t know exact
 
 ![](/images/uploads/img_4333.jpg)
 
-I realize not everyone able to take in a stray. If you are a farmer, for instance, you probably should not take in Bob, for your livestock’s sake. Of if you really dislike animals, taking in strays is probably not for you. But everyone has a talent or ability or the resources to ease some burden somewhere. Think about it. What need can you meet to shrink the size of government? It just boils down to loving your neighbor, and there are about as many ways to do that as there are people in the world.
+I realize not everyone is able to take in a stray. If you are a farmer, for instance, you probably should not take in Bob, for your livestock’s sake. Of if you really dislike animals, taking in strays is probably not for you. But everyone has a talent or ability or the resources to ease some burden somewhere. Think about it. What need can you meet to shrink the size of government? It just boils down to loving your neighbor, and there are about as many ways to do that as there are people in the world.
 
 ![](/images/uploads/img_4326.jpg)
 
