@@ -70,7 +70,7 @@ So, here are the reasons I kept Bob:
 * If I were to drop Bob off at the shelter, he would become yet another drain on resources.
 * If I were to drop Bob off at the shelter, he might eventually end up euthanized, which is a terrible waste of life if you ask me.
 * Because “All things bright and beautiful, all creatures great and small. All things wise and wonderful, the Lord God made them all.” God made Bob, and Bob belongs to Him. I am obliged to take good care of God’s belongings.
-* Because, why not me? I realize not everyone can take in a stray animal. But I can. I work from home. I don’t have children, so I don’t have as much to keep track of as lots of folks do. I care about dogs and I seem to have a knack with them. So, why should I do what I’m able.
+* Because, why not me? I realize not everyone can take in a stray animal. But I can. I work from home. I don’t have children, so I don’t have as much to keep track of as lots of folks do. I care about dogs and I seem to have a knack with them. So, why shouldn't I do what I’m able?
 * Because, even though one couple taking on one stray dog seems like a drop in the bucket, it’s one person here and one person there dropping the ball on dogs in general that has created this mess in the first place. How else is it going to change if one person at a time never steps up?
 * Because advocating for limited government means taking on responsibility so that less government is needed.
 * And finally, because silly me, I asked God to send us a dog that needed us. And Bob seems to fit that description.
