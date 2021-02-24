@@ -93,4 +93,8 @@ P.S. People keep asking me, “Why, Bob? Argos is such a regal name. Bob? Really
 
 Next time, come back and read about how Bob is helping me confront my anxiety…again.
 
+Thoughts? Questions? 
+
+Email me at mandaviolin@hotmail.com
+
 ![](/images/uploads/bob-sleeping.jpg)
