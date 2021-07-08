@@ -18,7 +18,7 @@ This morning, I got the call that Dad had passed away last night before midnight
 
 ![Cracking jokes before walking me down the aisle. ](/images/uploads/me-and-dad.jpeg "Me and Dad")
 
-A sickly little boy, brought up in the United Methodist Church turned into a disillusioned, atheist college student. From there, the Vietnam War turned him into a determined pacifist. When others dodged the draft, he went before the draft board and made his case. He did alternative service at the [Boylan Haven Mather Academy in Camden, South Carolina](https://en.wikipedia.org/wiki/Boylan-Haven-Mather_Academy) and served as an orderly at Henry Ford Hospital in Detroit, studying pacifism all the way. It was this study that led him to [“Conjectures of a Guilty Bystander,” by Thomas Merton](https://www.goodreads.com/work/quotes/404737-conjectures-of-a-guilty-bystander), a Trappist monk. And it was this Trappist monk that planted seeds of doubt in his atheistic framework. Slowly, he reexamined Christianity and found, to his surprise, that its claims were true. He was never the same again. 
+A sickly little boy, brought up in the United Methodist Church turned into a disillusioned, atheist college student. From there, the Vietnam War turned him into a determined pacifist. When others dodged the draft, he went before the draft board and made his case. He did alternative service at the [Boylan Haven Mather Academy in Camden, South Carolina](https://en.wikipedia.org/wiki/Boylan-Haven-Mather_Academy) and served as an orderly at Henry Ford Hospital in Detroit, studying pacifism all the way. It was this study that led him to [“Conjectures of a Guilty Bystander,” by Thomas Merton](https://www.goodreads.com/work/quotes/404737-conjectures-of-a-guilty-bystander), a Trappist monk. And it was this Trappist monk that planted seeds of doubt in his atheistic framework. Slowly, he reexamined Christianity and found, to his surprise, that its claims were true. He was never the same again.
 
 ![I'm pretty sure they were both thinking, "I didn't think she was EVER going to get married."](/images/uploads/mom-and-dad-at-my-wedding.jpeg "Mom and Dad")
 
@@ -56,14 +56,16 @@ And yet…in the last six hours or so, since the news of my dad’s passing brok
 
 Dad’s struggle is finally over. I, my family, and all who have known my Dad have to continue our struggles. We are, in a very real sense, his spiritual offspring. We can keep building on the foundation of faith that he laid, while learning from his mistakes. Or we can coast and float. We can contend for the truth or shrug our shoulders and give up trying. We can seize control when the answers to hard questions are not readily apparent, or we can hand those unanswerable questions to God and rest in His hands and wait for the answers if and when He deems it best to give them. I know what I want to do. God give me the grace to live it.
 
-“Weeping may endure for the night, but joy cometh in the morning.” It has been a long night. Some mornings you wake up with great expectations and hope. 
+“Weeping may endure for the night, but joy cometh in the morning.” It has been a long night. Some mornings you wake up with great expectations and hope.
 
-> Morning has broken like the first morning, 
+> Morning has broken like the first morning,
 >
-> Blackbird has spoken like the first bird. 
+> Blackbird has spoken like the first bird.
 >
-> Praise for the singing, praise for the morning, 
+> Praise for the singing, praise for the morning,
 >
-> Praise for them springing fresh from the world. 
+> Praise for them springing fresh from the world.
 
 But often, things happen to tarnish the morning and all the promises it offered. Doubts darken, pain oppresses, fears terrorize. Today is my dad’s morning and nothing will tarnish it. Doubts are gone. Pain is no more. There is nothing to be afraid of. God has, with His own hand, wiped away his tears. All is well. The morning is Dad's to stay.
+
+![](/images/uploads/me-and-dad-singing.jpeg)
