@@ -50,7 +50,7 @@ But as is often the case with great strengths, this drive in my Dad to engage wi
 
 Last year, my dad set a poem of John Wesley’s to music. “Loving Jesus, Gentle Lamb” is one of his masterpieces, in my estimation, written for the children of High Country Baptist Church. It is an anthem for the last eighteen months, if there ever was one. You can listen to it [here](https://youtu.be/MouSJbPO9Vs "Loving Jesus, Gentle Lamb").
 
-https://www.youtube.com/watch?v=MouSJbPO9Vs
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MouSJbPO9Vs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 > Loving Jesus, gentle lamb,
 >
