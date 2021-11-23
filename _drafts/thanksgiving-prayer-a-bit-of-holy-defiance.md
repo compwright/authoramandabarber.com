@@ -3,7 +3,10 @@ title: 'Thanksgiving Prayer: A Bit of Holy Defiance'
 date: 2021-11-23 00:00:00 -0500
 featured_image: "/images/uploads/visuals-b9wsem40cv0-unsplash.jpg"
 tags: thanksgiving defiance humility hardship goodness
-excerpt: ''
+excerpt: I read the end of the book, and I know who wins. Evil and the effects of
+  evil will fail. God will triumph. I won’t give Satan the satisfaction of my bitterness
+  or the control freak politicians and bureaucrats the satisfaction of my misery.
+  I will raise my thanksgiving in defiance.
 
 ---
 I am going to share a rather personal story today. And I want to be clear that when I share this story, it is not to earn sympathy or gain outpourings of support. It’s simply to illustrate a point and to share something that I have been learning over the last few years.
