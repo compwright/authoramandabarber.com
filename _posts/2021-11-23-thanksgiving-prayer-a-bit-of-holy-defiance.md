@@ -1,7 +1,7 @@
 ---
 title: 'Thanksgiving Prayer: A Bit of Holy Defiance'
 date: 2021-11-23 00:00:00 -0500
-featured_image: "/images/uploads/visuals-b9wsem40cv0-unsplash.jpg"
+featured_image: "/images/uploads/sora-sagano-q3-rgjjvg2k-unsplash.jpg"
 tags: thanksgiving defiance humility hardship goodness
 excerpt: I read the end of the book, and I know who wins. Evil and the effects of
   evil will fail. God will triumph. I won’t give Satan the satisfaction of my bitterness
