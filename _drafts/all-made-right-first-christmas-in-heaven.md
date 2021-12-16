@@ -31,13 +31,21 @@ If my dad had not been God’s child, none of those things would be true. But he
 
 He was such a good dad. He was so tenderhearted. Couldn’t stand to see his kids down with fevers, getting up in the middle of the night to administer Tylenol at the least sign of one when we were sick while my mom fussed at him to let the fever do its work. As I got older and my own health issues woke me in pain at night, he always got up and checked on me when he heard me stirring around the house. He never did sleep well.
 
+![](/images/uploads/dad-and-me-on-horse.jpeg)
+
 He loved Christmas. We didn’t have much money at all, barely enough to pay the bills, but he made Christmas fun. He’d go to the store and buy little odds and ends to put in our stockings--things that were not expensive or glamorous—and make them special by wrapping every single item, even a little pack of gum or a brick of peanut brittle.
 
 When I went through my doubts about my faith, he stayed up talking with me countless nights until 1:00, 2:00 in the morning trying to help me. He cried tears of joy when I finally had a breakthrough and started putting those doubts to rest.
 
+![](/images/uploads/extended-family.jpeg)
+
 He was so proud of me, it was almost embarrassing. “Have you read my daughter’s book?” he’d ask complete strangers, handing out business cards with my book info on them that he had printed himself. “Have you seen the movie my kids made?” He took it upon himself to spread my blog posts all over kingdom come, even emailing them to old school chums.
 
 He opened his Bible every day, sometimes twice a day, to teach the whole family verse by verse. He taught me how to sing. He got up at 4:00 in the morning to pray for us for hours. I would often wake up and hear him.
+
+Dad LOVED kids and each new grandchild he welcomed with excitement and pride. And they loved him. 
+
+![](/images/uploads/dad-and-grandkids.jpeg)
 
 He was happy and relieved and thankful when Jonathon and I called him up to tell him I'd said, "Yes." So happy to know that I was going to marry a good man, to be loved and taken care of in just the way he prayed I would be.
 
@@ -54,6 +62,8 @@ The moment he closed his eyes and made that blink of an eye trip to the presence
 > For now we see through a glass, darkly; but then face to face: now I know in part; but then shall I know even as also I am known. I Corinthians 13:12
 
 All of the physical pain—gone. The last vestiges of pride—gone. Defensiveness—not necessary anymore in the presence of perfect emotional and spiritual safety. Misguided beliefs clung to out of the fear of lurking danger should he let them go—immaterial. All that remained of sin melted away and the only thing left was Richard Barber being exactly who God created him to be with nothing left to ruin him.
+
+> When He talks of their losing their selves, He only means abandoning the clamour of self-will; once they have done that, He really gives them back all their personality, and boasts (I am afraid, sincerely) that when they are wholly His they will be more themselves than ever. -- C.S. Lewis, The Screwtape Letters
 
 And I know that if Dad could suddenly be transported out of God’s presence to see me for five minutes, he would say, “Amanda, would you forgive me for…” I would say, “I do, and I already did. I love you, and I can’t wait be there with you.”
 
