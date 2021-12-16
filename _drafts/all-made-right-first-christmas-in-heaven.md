@@ -68,3 +68,5 @@ Well, that’s simple. My dad taught me.
 Merry Christmas!
 
 > And that is precisely what Christianity is about. This world is like a great sculptor’s shop. We are the statues and there is a rumor going around that some of us are some day going to come to life – C.S. Lewis, Mere Christianity
+
+On December 24, do look for Justin Samuel Barber's song, First Christmas in Heaven and have a listen. You'll be glad you did. 
