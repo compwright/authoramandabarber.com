@@ -1,7 +1,7 @@
 ---
 title: All Made Right--First Christmas in Heaven
 date: 2021-12-15 00:00:00 -0500
-featured_image: ''
+featured_image: "/images/uploads/first-christmas-in-heaven.jpeg"
 tags: 'death loss passing hope joy Christmas parenting children heaven '
 excerpt: I expect grief is different for everyone. Different if the one who is gone
   is a grandparent, father, mother, child, spouse, friend. Hard to prepare for without
