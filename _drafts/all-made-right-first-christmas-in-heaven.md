@@ -11,6 +11,8 @@ excerpt: I expect grief is different for everyone. Different if the one who is g
 ---
 I love December. I love the whole Christmas season and always have. This particular Christmas is tinted with memories of my dad now gone.
 
+![](/images/uploads/dad-at-piano.jpeg)
+
 My brother has written a song which he will release on streaming platforms on December 24. It's about our dad and it's called First Christmas in Heaven. Short, to the point, lovely and hopeful, it's gotten me thinking about Christmas and Dad. There is a lot of unspoken back story to the song. I thought I'd write it, so you can see and understand.
 
 I expect grief is different for everyone. Different if the one who is gone is a grandparent, father, mother, child, spouse, friend. Hard to prepare for without knowing how it will be for you. Different if you were there when the death happened. Different if you were absent. Different if you were the one calling the ambulance.
@@ -24,6 +26,8 @@ Joy is such an overused, misused word. I won’t belabor its misuses. But when I
 When I woke up that morning to the news that dad had died at midnight, it took perhaps just a few moments for the realization to hit me. “Dad is alright now. He’s not struggling. All those things that were not good are made perfect. Everything between me and dad is alright.” So much joy.
 
 If my dad had not been God’s child, none of those things would be true. But he was—an imperfect, flawed child with plenty of his old nature left to trip him up.
+
+![](/images/uploads/family-picture.jpeg)
 
 He was such a good dad. He was so tenderhearted. Couldn’t stand to see his kids down with fevers, getting up in the middle of the night to administer Tylenol at the least sign of one when we were sick while my mom fussed at him to let the fever do its work. As I got older and my own health issues woke me in pain at night, he always got up and checked on me when he heard me stirring around the house. He never did sleep well.
 
@@ -69,4 +73,4 @@ Merry Christmas!
 
 > And that is precisely what Christianity is about. This world is like a great sculptor’s shop. We are the statues and there is a rumor going around that some of us are some day going to come to life – C.S. Lewis, Mere Christianity
 
-On December 24, do look for Justin Samuel Barber's song, First Christmas in Heaven and have a listen. You'll be glad you did. 
+On December 24, do look for Justin Samuel Barber's song, First Christmas in Heaven and have a listen. You'll be glad you did.
