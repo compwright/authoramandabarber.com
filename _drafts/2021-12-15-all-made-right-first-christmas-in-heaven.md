@@ -39,7 +39,7 @@ When I went through my doubts about my faith, he stayed up talking with me count
 
 ![](/images/uploads/extended-family.jpeg)
 
-He was so proud of me, it was almost embarrassing. “Have you read my daughter’s book?” he’d ask complete strangers, handing out business cards with my book info on them that he had printed himself. “Have you seen the movie my kids made?” He took it upon himself to spread my blog posts all over kingdom come, even emailing them to old school chums.
+He was so proud of me, it was almost embarrassing. “Have you read my [daughter’s book](https://www.amazon.com/Pursuit-Elizabeth-Millhouse-Amanda-Barber/dp/1581694563)?” he’d ask complete strangers, handing out business cards with my book info on them that he had printed himself. “Have you seen [the movie](https://www.imdb.com/title/tt2361026/) my kids made?” He took it upon himself to spread my blog posts all over kingdom come, even emailing them to old school chums.
 
 He opened his Bible every day, sometimes twice a day, to teach the whole family verse by verse. He taught me how to sing. He got up at 4:00 in the morning to pray for us for hours. I would often wake up and hear him.
 
@@ -83,4 +83,4 @@ Merry Christmas!
 
 > And that is precisely what Christianity is about. This world is like a great sculptor’s shop. We are the statues and there is a rumor going around that some of us are some day going to come to life – C.S. Lewis, Mere Christianity
 
-On December 24, do look for Justin Samuel Barber's song, First Christmas in Heaven and have a listen. You'll be glad you did.
+On December 24, do look for [Justin Samuel Barber's song](https://www.getrevue.co/profile/justinbarber), First Christmas in Heaven and have a listen. You'll be glad you did.
