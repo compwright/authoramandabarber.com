@@ -161,7 +161,15 @@ font_settings:
 
 advanced_settings:
   ajax_loading: true
-  analytics_code: ""
+  analytics_code: >-
+    <!-- Global site tag (gtag.js) - Google Analytics -->
+    <script async src="https://www.googletagmanager.com/gtag/js?id=G-CPV04VBZ4Q"></script>
+    <script>
+      window.dataLayer = window.dataLayer || [];
+      function gtag(){dataLayer.push(arguments);}
+      gtag('js', new Date());
+      gtag('config', 'G-CPV04VBZ4Q');
+    </script>
   custom_styles: ""
   header_js: ""
   footer_js: '<script async defer src="//assets.pinterest.com/js/pinit.js"></script>'
