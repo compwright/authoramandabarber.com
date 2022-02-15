@@ -115,8 +115,10 @@ From thence, to home. Our home that was still standing and not burnt. We got in 
 
 And that, dear friends, was our Valentine's Day.
 
-I love my funny Valentine. Our lives are never dull. Our days are full of craziness and changing plans and looming deadlines. But I'm so glad we get to go through our days together. And it turns out, we make a pretty good time when there's a fire on the loose.
+I love my funny Valentine. Our lives are never dull. Our days are full of craziness and changing plans and looming deadlines. But I'm so glad we get to go through our days together. And it turns out, we make a pretty good team when there's a fire on the loose.
 
-![](/images/uploads/orchid.jpeg)An orchid from Jonathon. We got it at Lowes.
+An orchid from Jonathon. We got it at Lowes.
+
+![](/images/uploads/orchid.jpeg)
 
 ![](/images/uploads/closeup.jpeg)
