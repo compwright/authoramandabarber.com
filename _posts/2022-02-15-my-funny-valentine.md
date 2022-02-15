@@ -97,7 +97,7 @@ The next two hours were taken up with moving everything off the kitchen counters
 
 Then we headed to the MOST romantic location on Valentine's Evening--Walmart. The realtor, you see, had told us that we ought to get some wax heaters to make the place smell ultra homey. It works wonders on potential buyers, apparently. Walmart being the only place open at 9:00 PM around here, to Walmart we went.
 
-"Where do we find this things?" Jonathon asked.
+"Where do we find these wax smelly things?" Jonathon asked.
 
 "Home Living," I replied.
 
@@ -105,6 +105,14 @@ Then we headed to the MOST romantic location on Valentine's Evening--Walmart. Th
 
 "We've been keeping the home fires burning," I said.
 
-And then I embarrassed myself by laughing like a banshee, whooping with tears streaming down my cheeks. People stared. I was too tired and wheezy to care.
+And then I embarrassed myself by laughing like a banshee, whooping, tears streaming down my cheeks. People stared. I was too tired and wheezy to care.
 
 From thence, to home. Our home that was still standing and not burnt. We got in the bathtub to sooth our sore muscles whilst eating ice cream and brownies. And we wheezed some more and coughed up the rest of the smoked we inhaled earlier. Then we hit the sack. Hard. I haven't fallen asleep that fast in a long time. 
+
+And that, dear friends, was our Valentine's Day.
+
+I love my funny Valentine. Our lives are never dull. Our days are full of craziness and changing plans and looming deadlines. But I'm so glad we get to go through our days together. And it turns, we make a pretty good time when there's a fire on the loose. 
+
+![](/images/uploads/orchid.jpeg)An orchid from Jonathon. We got it at Lowes. 
+
+![](/images/uploads/closeup.jpeg)
