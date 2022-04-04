@@ -66,8 +66,6 @@ The intriguing thing about birds (and the rest of the animal kingdom) is that th
 
 And even with all this knowledge, they die by the thousands every day. They die between the jaws of cats and dogs. They die of diseases they have no defenses for. They kamikaze into glass windows and break their necks. Storms blow their nests out of trees and crush their eggs on the ground below. Their lives are far from easy.
 
-In spite of the difficulty of its life, a free bird never desires to be anything but a bird. It never rages against what God designed it to be like we do. The free bird doesn’t feel like a pig inside and cut off its wings to go rooting in the mud. Caged birds develop all manner of neuroses.
-
 But the most amazing thing about free birds is that…they carry on. They are delicate and easy to crush in so many ways, but they keep going in that stoic fashion that distinguishes the animal kingdom from us humans. They suffer many things and never complain.
 
 #### All the above is what Angelou forgot to mention.
