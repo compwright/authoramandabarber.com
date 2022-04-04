@@ -3,7 +3,10 @@ title: What All Birds Sing
 date: 2022-04-04 00:00:00 -0400
 featured_image: "/images/uploads/ryk-naves-b_-kvgwg_ym-unsplash.jpg"
 tags: birds domesticated free freedom caged
-excerpt: ''
+excerpt: |-
+  When most people talk about freedom, they mean the freedom to do what they like when they want to do it. They mean the freedom to live without obvious and intrusive constraints. They mean the freedom to live the easy or easier life while clutching the insurance policy of someone or some entity swooping in to save the day should any danger intrude.
+  What most people want isn’t really freedom.
+  What most people want is a bigger cage.
 
 ---
 ![](/images/uploads/4645df3b-5a56-4308-8e06-d6678d216743.jpeg)
