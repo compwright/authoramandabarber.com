@@ -152,7 +152,7 @@ But the most amazing thing about free birds is that…they carry on. They are de
 
 And another thing--the free bird sings.
 
-It sings more beautifully than the caged bird ever will, because the free bird’s song isn’t about easy pleasures or angry longing. It’s about the hard-won, hard-fought free life. How anyone could listen to the song of a mockingbird as I just did not five minutes ago without a little thrill of delight is beyond my comprehension. In spite of its precarious position in the wild, the free bird sings.
+It sings more beautifully than the caged bird ever will, because the free bird’s song isn’t just about easy pleasures or angry longing. It’s about the hard-won, hard-fought free life. How anyone could listen to the song of a mockingbird as I just did not five minutes ago without a little thrill of delight is beyond my comprehension. In spite of its precarious position in the wild, the free bird sings.
 
 The problem with freedom is that most people don’t understand what it really is and what it takes to live free.
 
