@@ -8,7 +8,7 @@ excerpt: ''
 ---
 > Caged Bird
 >
-> \--Maya Angelou
+> Maya Angelou
 >
 > A free bird leaps
 >
