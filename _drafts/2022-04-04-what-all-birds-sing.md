@@ -16,13 +16,13 @@ I don’t have anything against pet birds. I had one for a long time and she was
 
 ![](/images/uploads/5cdf452e-d1b5-40dc-adc8-78fcde0f7f2c.jpeg)
 
-But she wasn’t wild. She came from a long line of birds taken from the wild--domesticated and bred for certain qualities. She was bright, highlighter yellow with little blue streaks by her eyes that only showed up in certain light. She was tart, affectionate, spunky, and mean and nasty by turn. She was tremendous fun to have around, adrenaline-inducing given her wide rainbow of moods. 
+But she wasn’t wild. She came from a long line of birds taken from the wild--domesticated and bred for certain qualities. She was bright, highlighter yellow with little blue streaks by her eyes that only showed up in certain light. She was tart, affectionate, spunky, and mean and nasty by turn. She was tremendous fun to have around, adrenaline-inducing given her wide rainbow of moods.
 
 But those generations of breeding had done a number on her. She was all bird, but something belonging to birds had gotten lost. She lacked some instincts and the ability to fly for long periods of time without becoming fatigued and crashing to the floor. It was comical and a little sad to see her aim for a perch, miss it by a foot, crash into the wall and slide down to the floor.
 
 She wouldn’t have lasted a day in the great outdoors far away from the tropical climate her ancestors hailed from. She was a caged bird, and we all know instinctively that birds don’t belong in cages. They can survive there. They can live comfortably and safely in a cage. But they can’t live the life meant for birds in cage.
 
-#### And I think that is the crux of the matter: Birds, living the way God intended, are free, and they show us that people ought to live free as well.![](/images/uploads/devin-avery-61qsu_-wzr4-unsplash.jpg)
+#### And I think that is the crux of the matter: Birds, living the way God intended, are free, and they show us that people ought to live free as well.
 
 People want to be free.
 
@@ -52,7 +52,7 @@ It shows up in our songs, in our books, in our films. References to birds and fl
 
 The problem is, most everyone’s concept of freedom, except God’s, is inadequate. In my last newsletter (which you can subscribe to [here](https://www.getrevue.co/profile/authoramandabarber)) I asked my readers what Maya Angelou missed in her description of a bird’s freedom and I promised an answer.
 
-##### Here it is. The free bird’s life is dangerous, brutal, and short.
+##### Here it is. The free bird’s life is dangerous, brutal, and short.![](/images/uploads/chris-slupski-toa6fsmcbva-unsplash.jpg)
 
 Birds live in constant danger almost every moment of their little lives. Danger from predators including other birds, danger and oppression from the elements, danger from disease. When they hatch, and something is wrong with them, there is no human to swoop in and keep a defective birdling alive. They just die. Birds are on high alert every waking moment.
 
