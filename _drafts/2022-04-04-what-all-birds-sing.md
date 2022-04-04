@@ -6,6 +6,7 @@ tags: birds domesticated free freedom caged
 excerpt: ''
 
 ---
+![](/images/uploads/4645df3b-5a56-4308-8e06-d6678d216743.jpeg)
 
 #### “Birds show us how to live.”
 
@@ -124,70 +125,4 @@ Quite often, the keys to our own cages are held in our hands. Even if they aren�
 
 Angelou’s poem will get quoted in my novel because it has its truths, though not the whole truth. So, it seems only fitting that I close with a wholly true poem—about a free bird. This is what I wish for all of you.
 
-> The Darkling Thrush
->
-> By Thomas Hardy
->
-> I leant upon a coppice gate
->
-> When Frost was spectre-grey,
->
-> And Winter's dregs made desolate
->
-> The weakening eye of day.
->
-> The tangled bine-stems scored the sky
->
-> Like strings of broken lyres,
->
-> And all mankind that haunted nigh
->
-> Had sought their household fires.
->
-> The land's sharp features seemed to be
->
-> The Century's corpse outleant,
->
-> His crypt the cloudy canopy,
->
-> The wind his death-lament.
->
-> The ancient pulse of germ and birth
->
-> Was shrunken hard and dry,
->
-> And every spirit upon earth
->
-> Seemed fervourless as I.
->
-> At once a voice arose among
->
-> The bleak twigs overhead
->
-> In a full-hearted evensong
->
-> Of joy illimited;
->
-> An aged thrush, frail, gaunt, and small,
->
-> In blast-beruffled plume,
->
-> Had chosen thus to fling his soul
->
-> Upon the growing gloom.
->
-> So little cause for carolings
->
-> Of such ecstatic sound
->
-> Was written on terrestrial things
->
-> Afar or nigh around,
->
-> That I could think there trembled through
->
-> His happy good-night air
->
-> Some blessed Hope, whereof he knew
->
-> And I was unaware.
+![](/images/uploads/e4251c06-b6ff-496e-a2d2-a13bf0da02bd_4_5005_c.jpeg)
