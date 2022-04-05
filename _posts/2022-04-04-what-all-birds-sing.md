@@ -124,7 +124,7 @@ My book is a warning.
 
 Once a society gets to the last stage of domestication, it rarely comes back, and it usually ends in collapse. If we do not collectively wake up, we will continue along the easy path to domestication and destruction. I beg you all not to let this happen.
 
-No matter how domesticated you are, don’t let that desire to live free die. Learn, grow, be curious, ask questions, don’t acquiesce to things that make no sense. You were born to be free. Not just free to do as you please, but also free to be strong and courageous, to face down certain death and take risks, to live to the full.
+No matter how domesticated you are, don’t let that desire to live free die. Sing like the caged bird, even if you don't quite understand what you're singing about. Learn, grow, be curious, ask questions, don’t acquiesce to things that make no sense, and your song will become more true. You were born to be free. Not just free to do as you please, but also free to be strong and courageous, to face down certain death and take risks, to live to the full.
 
 Don’t let anyone tell you otherwise.
 
