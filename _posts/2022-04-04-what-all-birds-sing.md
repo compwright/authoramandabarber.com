@@ -53,17 +53,19 @@ It shows up in our songs, in our books, and in our films. References to birds an
 >
 > “Free as a bird…”
 
-The problem is, most everyone’s concept of freedom, except God’s, is inadequate. (And, no, I won't be giving the comprehensive definition of freedom as given by inspiration of God in Scripture. That would take more than a blog post.) In my last newsletter (which you can subscribe to [here](https://www.getrevue.co/profile/authoramandabarber)) I asked my readers what Maya Angelou missed in her description of a bird’s freedom and I promised an answer.
+The problem is, most everyone’s concept of freedom, except God’s, is inadequate. (And, no, I won't be giving the comprehensive definition of freedom as given by inspiration of God in Scripture. That would take more than a blog post.) 
+
+In my last newsletter (which you can subscribe to [here](https://www.getrevue.co/profile/authoramandabarber)) I asked my readers what Maya Angelou missed in her description of a bird’s freedom and I promised an answer.
 
 ##### Here it is. The free bird’s life is dangerous, brutal, and short.![](/images/uploads/chris-slupski-toa6fsmcbva-unsplash.jpg)
 
 Birds live in constant danger almost every moment of their little lives. Danger from predators including other birds, danger and oppression from the elements, danger from disease. When they hatch, and something is wrong with them, there is no human to swoop in and keep a defective birdling alive. They just die. Birds are on high alert every waking moment.
 
-Have you ever watched how their heads move at least twenty to thirty times a minute, maybe more? While they eat, they scan their surroundings looking for cats and snakes and competition, ready to fly off to safety at a moment’s notice. 
+Have you ever watched how their heads move at least twenty to thirty times a minute, maybe more? While they eat, they scan their surroundings looking for cats and snakes and competition, ready to fly off to safety at a moment’s notice.
 
 If you listen to bird sounds long enough, you will realize that the pleasant backdrop of “song” they make is a language all its own. It’s warnings of danger. It’s mating calls. It’s territorial rants. It’s calls to attack. And, I hope, some of it is just to make music. (Perhaps that’s mere sentimentality on my part.)
 
-No airplane in the sky can compete with the aerodynamics of a bird. But unlike a plane, a bird must be light as a feather to own the skies. This requires lightning fast metabolism Birds eat all the time, all day long just to keep body and soul together. Then they poop it out ten minutes later. The hunt for food never ends. They’re the first ones up in the morning. They always work. They never get a break. 
+No airplane in the sky can compete with the aerodynamics of a bird. But unlike a plane, a bird must be light as a feather to own the skies. This requires lightning fast metabolism Birds eat all the time, all day long just to keep body and soul together. Then they poop it out ten minutes later. The hunt for food never ends. They’re the first ones up in the morning. They always work. They never get a break.
 
 The intriguing thing about birds (and the rest of the animal kingdom) is that they just know how to do all these things. They have, as a species, amassed all this knowing over thousands of years. They just know how to avoid predators. They just know how to find food. They just know how to fly. They just know how to fashion a nest with mud and sticks and grass. They just know how to nest on their eggs and protect their young from predators looking for a snack.
 
@@ -73,7 +75,7 @@ But the most amazing thing about free birds is that…they carry on. They are de
 
 #### All the above is what Angelou forgot to mention.
 
-And another thing--the free bird sings.
+And another thing: The free bird sings.
 
 It sings more beautifully than the caged bird ever will, because the free bird’s song isn’t just about easy pleasures or angry longing. It’s about the hard-won, hard-fought free life. How anyone could listen to the song of a mockingbird as I just did not five minutes ago without a little thrill of delight is beyond my comprehension. In spite of its precarious position in the wild, the free bird sings.
 
@@ -114,23 +116,23 @@ Big enough so that they can’t see the bars when they’re standing comfortably
 
 People MUST be free. Or they risk the atrophy of their very natures and the souls God breathed into them.
 
-I am writing a book called 27, about a society that has reached the last stage of domestication. Their lives are planned, ordered and run by a "benign" bureaucracy that is government, health system, and education system--and no one can tell where one ends and the other begins. There are three main characters—one who has lived free and has been captured, one who was born into silent captivity whom a bird awakens to life and the will to live it, and the last who is living the good, safe, domesticated life and is raging in his cage without knowing why. 
+I am writing a book called 27, about a society that has reached the last stage of domestication. Peoples' lives in that society are planned, ordered and run by a "benign" bureaucracy that is government, health system, and education system all rolled into one giant behemoth. No one can tell where one ends and the other begins. There are three main characters—one who has lived free and has been captured; one who was born into silent captivity whom a bird awakens to life and the will to live it; and the last who is living the good, safe, domesticated life and is raging in his cage without knowing why.
 
 This imaginary society is us in about fifty years. No, not in every particular, but in every way that really counts.
 
-My book is a warning. 
+My book is a warning.
 
 Once a society gets to the last stage of domestication, it rarely comes back, and it usually ends in collapse. If we do not collectively wake up, we will continue along the easy path to domestication and destruction. I beg you all not to let this happen.
 
-No matter how domesticated you are, don’t let that desire to live free die. Learn, grow, be curious, ask questions, don’t acquiesce to things that make no sense. You were born to be free. Not just free to do as you please! But also free to be strong and courageous, to face down certain death and take risks--to live to the full.
+No matter how domesticated you are, don’t let that desire to live free die. Learn, grow, be curious, ask questions, don’t acquiesce to things that make no sense. You were born to be free. Not just free to do as you please, but also free to be strong and courageous, to face down certain death and take risks, to live to the full.
 
 Don’t let anyone tell you otherwise.
 
 #### And one last thing: Birds don’t build cages. People do.
 
-Quite often, the keys to our own cages are held in our hands. Even if they aren’t, you can always try to escape. The point is, even if the choice is between captivity or the possibility of death or some other pain inflicted on you by an outside source—you still have a choice. We always have a choice.
+Quite often, the keys to our own cages are held in our hands. Even if they aren’t, we can always try to escape. The point is, even if the choice is between captivity or the possibility of death or some other pain inflicted upon you by an outside source—you still have a choice. We always have a choice.
 
-Angelou’s poem will get quoted in my novel because it has its truths, though not the whole truth. So, it seems only fitting that I close with a wholly true poem—about a free bird. This is what I wish for all of you.
+Angelou’s poem will get quoted in my novel because it is its true, even if one part hasn't been told. So, it seems only fitting that I close with a wholly true poem about a free bird. This is what I wish for all of you.
 
 ![](/images/uploads/e4251c06-b6ff-496e-a2d2-a13bf0da02bd_4_5005_c.jpeg)
 
