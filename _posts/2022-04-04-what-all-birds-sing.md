@@ -77,7 +77,7 @@ But the most amazing thing about free birds is that…they carry on. They are de
 
 And another thing: The free bird sings.
 
-It sings more beautifully than the caged bird ever will, because the free bird’s song isn’t just about easy pleasures or angry longing. It’s about the hard-won, hard-fought free life. How anyone could listen to the song of a mockingbird as I just did not five minutes ago without a little thrill of delight is beyond my comprehension. In spite of its precarious position in the wild, the free bird sings.
+It sings more beautifully than the caged bird ever will, because the free bird’s song isn’t just about easy pleasures or angry longing. It’s about the hard-won, hard-fought free life. Not the fight to _become_ free, but the fight that _is_ freedom. How anyone could listen to the song of a mockingbird as I just did not five minutes ago without a little thrill of delight is beyond my comprehension. In spite of its precarious position in the wild, the free bird sings.
 
 The problem with freedom is that most people don’t understand what it really is and what it takes to live free.
 
@@ -132,7 +132,7 @@ Don’t let anyone tell you otherwise.
 
 Quite often, the keys to our own cages are held in our hands. Even if they aren’t, we can always try to escape. The point is, even if the choice is between captivity or the possibility of death or some other pain inflicted upon you by an outside source—you still have a choice. We always have a choice.
 
-Angelou’s poem will get quoted in my novel because it is its true, even if one part hasn't been told. So, it seems only fitting that I close with a wholly true poem about a free bird. This is what I wish for all of you.
+Angelou’s poem will get quoted in my novel because it is true, even if one part hasn't been told. So, it seems only fitting that I close with a wholly true poem about a free bird. This is what I wish for all of you.
 
 ![](/images/uploads/e4251c06-b6ff-496e-a2d2-a13bf0da02bd_4_5005_c.jpeg)
 
