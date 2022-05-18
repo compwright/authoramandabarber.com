@@ -1,0 +1,77 @@
+---
+title: Imagine
+date: 2022-05-18 00:00:00 -0400
+featured_image: "/images/uploads/bruce-van-zyl-mkr972ocbc-unsplash.jpg"
+tags: 'imagination '
+excerpt: ''
+
+---
+**Originally published on July 25, 2014 by** [**Conciliar Post**](https://conciliarpost.com/life-and-faith/imagine-2/)
+
+At times, I feel within me a burning conviction of the truth of something that is at once more difficult to put into words than the doctrines of my Christian faith yet as clear as crystal to my soul and my seat of “knowing.” When I feel this way, it is time to sit down in front of pen and paper and muddle through until I can capture a solid thought from the elusive world of cultural observation. As you might guess, now is such a time.
+
+Not long ago, I received a letter from a pen pal who lives in India. He told me about the school he attended as a child. The girls’ and boy’s sides of the school were joined by a large cathedral. One day, he went inside alone and was so frightened by the hugeness of it and its silence that he ran outside in a panic. He ended his story by remarking that he returned to the cathedral not long ago and was surprised to find how much smaller and benign the building seemed. His words sparked a long train of thought in my own mind, about imagination, what supports it, and what it ultimately helps us see.
+
+At first glance, his tale seems a bit heart-breaking. How terrible for a child to be frightened in church of all places! But it occurred to me that the fact that he was frightened shows signs of a healthy imagination at work, a young mind that can recognize and grasp the significance of those vaulted ceilings. Only an imaginative child can hear the creak of timber, the echoing of his own footsteps and be impressed by the eerie calm of it all. Whether he was aware of it or not, I’d venture to guess that the immensity of that cathedral spoke to a deep understanding which God plants in every heart—that He is immense and powerful and sees all. Such a realization brings fear, and yes, comfort. But fear must come first.
+
+While I pondered these thoughts, I began to read a book by Anthony Esolen called, _Ten Ways to Destroy the Imagination of Your Child_. Like the tongue-in-cheek title suggests, nearly every chapter is devoted to one of ten methods to transform your child into an acceptable cog in the developed world’s wheel—you know, consuming things, learning the correct view of things, learning not to ask too many questions, and sitting in a cubicle writing progress reports so that he can make more money to consume more things. The methods that have to do with my train of thought are the first two:
+
+> 1. Keep your children indoors as much as possible
+>
+> 2\. Never leave children to themselves—in other words, organize every waking minute so they do not need to exercise their own imaginations.1
+
+Though this next thought may seem like a rabbit trail, it isn’t. So bear with me. If Anthony Esolen is correct and adhering to his ten imagination busters will do the trick, then my parents did pretty much everything wrong when it comes to dealing a death blow to the imagination, especially concerning the first two methods. 
+
+We lived on the campus of a church/school ministry out in the middle of farm country. It was a kid’s paradise and my parents took full advantage of the spacious property. They sent me into the great outdoors anytime the weather was even slightly hospitable to human life. My younger brother and I were homeschooled. We began school in September and stopped in May. From May until the beginning of September we were outside most of the day, either playing with friends or working in the garden. We explored every nook and cranny of that campus’ wide grassy fields and woods.
+
+My parents were also somewhat scornful of the “activities for the children” way of life. In their minds, church, education (which included music), and family were most important. Therefore, they did not see the need to organize our every waking minute. We did school, practiced our music, went to church and did chores. Beyond that, it was up to us to amuse ourselves. 
+
+We were not off driving to sports practices, tennis lessons, gymnastics, dance classes, arts and crafts get-togethers or play dates. Play dates? What on earth? If I wanted to play with someone, I had to pick up the phone, call my friend and ask permission to come over. Then, horror of horrors, I had to walk to her house. The end result of this lack of organized activity, is that I spent far less time stuck in the car driving to various activities and a lot more time actually doing things. 
+
+I peddled my bike at top speed along gravel roads, fell off and busted up my knees, imbedding them with gravel and dirt. I hiked through the woods and splashed around in creeks and mud puddles, getting thoroughly wet and muddy. I caught frogs and toads. I played in fields around my house, tunneling through the tall grasses, collecting ticks and mosquito bites. I lay flat on my back on fine days looking up at the blue, blue sky with the sun on my face.
+
+Mind you, at this point in history, Al Gore had just completed his magnum opus, the internet. So, computers, internet, cell phones, iPods, iPhones and iPads had not yet reached into my home with their long, serpentine arms. When the weather was foul and I could think of nothing else to do, I did not hop online and chat with friends on social media, that sink hole of indiscretion, to paraphrase a quote from the TV show Person of Interest. I also learned not to say the phrase, “I’m bored,” if I wanted to avoid more chores. Instead, I read just about everything I could get my hands on. 
+
+When I could not read an hour longer, I gathered up my dolls and played doctor and orphanage. I bathed and dressed and brushed my dolls’ hair until their tortured follicles stood on end. When the weather was the most foul, I put everything aside to observe it. I stood on the porch and watched thunderstorms roll in. My mouth agape in awe, I gazed at the black clouds and lighting, listening to the thunder and the roaring wind whipping my hair around my head. The power of that display made me think of something else. It seemed to me, even at that young age, a reflection of the power and might of God.
+
+When I was older, we moved away to the city. I noticed a curious thing. The children in my neighborhood seemed bored and boring. They spent their summers indoors for the most part or at the Y for swimming lessons. When my brother wanted to play with the neighbor boys, he had to coax them away from their video games, which they wanted to play every waking minute. 
+
+Nothing seemed to shock or amaze them. 
+
+They had their imaginations shaped by TV and pop culture. 
+
+One young girl tried to convince me to loan her a large sum of money. When I asked why, she said she wanted the money for a pair of tennis shoes that were all the rage. That I could not understand. Thank God, I couldn’t understand. 
+
+These children walked around the neighborhood (when they walked which wasn’t often) with music piped into their ears. Even when they were outside, they couldn’t hear the birds singing or relish the sun beyond the fact that it might give them a cool tan. Many of their parents hovered around them night and day, providing endless activities and “options.” “They need to experience many things so they know what they’re interested in,” they’d say. Consequently, many of these children never became good at anything. At precisely the moment one new thing became hard, which is when they should have pushed through the learning curve, they quit and tried something else. Their mothers shielded their eyes from looking at the news clips of violence in the Middle East and then happily sent them off to watch the newest Harry Potter movie filled with “safer” CGI violence.
+
+![](/images/uploads/john-towner-pdkovuxykxu-unsplash.jpg)
+
+What does all of this have to do with my friend in India? I’ll tell you. As I thought about him, I tried to imagine one of those kids in my neighborhood wandering into that cathedral. Suppose he could be transplanted to India with all his technological comforts intact? Suppose he actually could wrench himself away from his video games for a few minutes to wander outside in the sun, slathered up with sunscreen, of course? 
+
+Let’s imagine he steps into the cathedral about the same time my Indian friend does. Not out of curiosity, certainly. He is listening to the latest and greatest band on his iPod and he is playing Angry Birds on his iPhone. The only reason he went inside was to get out of the sun. To his left is my Indian friend, staring up at the vaulted ceilings, mouth agape. They are standing side by side now. My friend is nearly trembling as the wind blows and moans around the rafters. He’s about ready to run out into the warm, welcoming sun. My little neighbor is staring at a screen, too absorbed in trivialities to notice the thing of beauty he is leaning against—a huge pillar that supports the entire edifice.
+
+In my friend’s letter, he devoted almost two pages to a short history of India’s first Prime Minister. He also quoted at length from a speech by Teddy Roosevelt. His knowledge of his own history and of mine deeply impressed me and made me ashamed. Here I saw a love for his country, in spite of its foibles, and a respect for mine. My store of historical knowledge is small, to be sure. How much smaller, my neighbor absorbed in his phone? Maybe I would have had the good sense to be frightened in the cathedral. I don’t know. I’m almost positive my neighbor, if he had chanced to look up and notice, would have gone on his way in boredom.
+
+If he was very enlightened, he might have referred to the architecture as the product of old, dead, white guys and imperialism.
+
+Anthony Esolen makes a statement in his book that I find telling, “But the children can’t be bothered. They have been trained up on the flashy, the immediate sensation. They have no love for their land, and no patience even to behold its beauty…We see here the products of easy cynicism. Learn to despise the place where you were born, its old customs, its glories and its shame. Then stick your head in a comic book. That done, you will be triple-armored against the threat of a real thought, or the call of the transcendent. **Some people have no worlds for God to pierce through.”**2
+
+![](/images/uploads/matt-cramblett-fbg4owazcd8-unsplash.jpg)
+
+If you don’t want you or your children to see God, here’s what you do. Create an artificial world full of bustling and business. A world that leaves no time for reflection. If you want to add an extra dose of confusion, tell your children to love and obey God and then make it impossible for them to observe God’s character through natural revelation. 
+
+Fill their minds with noise because they can’t bear silence and call it “loving music.” And then, when their minds are full of noise, tell them to sit down and concentrate on the Word of God for five minutes. 
+
+Rejoice and laud the information age without pausing to notice that all the information you have access to at a click of a mouse is nothing more than a vast collection of incoherent facts, void of context, cohesion and utterly useless without a logical framework to hang them on and form a complete picture. 
+
+Oh, and stay inside as much as possible. If it’s not possible, make sure to plug yourself into media while you’re out there to avoid the effects it might have on you.
+
+Please do not imagine that my purpose is to rail curmudgeonly against technology. Since I am using the internet to disperse my ideas, it should be clear that I regard it as a useful, though often misused, tool. My purpose is to beg you to protect and preserve your imagination, especially so if you have children. Imagination--that tool God uses to help us see Him. Keep it wild and inquisitive, not closed and safe. God, after all, “plants His footsteps in the sea and rides upon the storm.” 3
+
+Sources:
+
+1 Esolen, Anthony. _Ten Ways to Destroy the Imagination of Your Child_ (Wilmington: ISI Books, 2013), 27, 47
+
+2 Esolen, Anthony. _Ten Ways to Destroy the Imagination of Your Child_ (Wilmington: ISI Books, 2013), 132
+
+3 Cowper, William. _Living Hymns_ (Greenville: Better Music Publications, 1988), 577
